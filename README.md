@@ -1,1 +1,1 @@
-# myForexFunds.
+# myForexFunds.com
